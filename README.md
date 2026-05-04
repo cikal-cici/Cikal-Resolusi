@@ -1,0 +1,21 @@
+# Cikal-Resolusi 2026
+
+Halo!!
+Di Tahun 2026 ini saya berharap bisa menjadi jauh lebih baik dari Tahun-tahun sebelumnya dan bisa menjadi lebih mandiri
+
+## Tujuan
+- Menjadi pribadi yang lebih disiplin dan bertanggung jawab
+- Lebih konsisten dalam belajar dan berani mencoba hal-hal baru
+
+## Rencana Belajar
+- Belajar tentang dasar-dasar cooding dan jaringan komputer
+- Menyelesaikan setiap tugas dengan baik dan tepat waktu
+
+## Target Pribadi
+- Menjadi pribadi yang lebih mandiri
+- Meningkatkan rasa percaya diri
+- Menjadi pribadi yang lebih sabar dalam menghadapi masalah
+- Tidak mudah mengeluh
+- Tidak mudah Overthingking
+- Dapat mengatur waktu dengan lebih baik
+- Tidak menunda-nunda tugas
